@@ -1,3 +1,3 @@
-<img width="436" height="480" alt="WebP Image" src="https://github.com/user-attachments/assets/db701360-bf6e-493f-8a43-9253b6871085" />
-## hai
+## ! call me mil 
+<img width="500" height="270" alt="GIF image" src="https://github.com/user-attachments/assets/06de75c8-bea7-480d-be35-31e3df7c9898" />
 
