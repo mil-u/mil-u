@@ -21,4 +21,6 @@ tv shows/movies: breaking bad, better call saul, 2001: a space odyssey, project 
 ----------
 
 << get off safe server if youre a proshipper especially with "minors dni" (you know damn well) youre all weirdos 4 letting kids see your bs keep it private or take it to 18+ >>
-<img width="796" height="28" alt="GIF image" src="https://github.com/user-attachments/assets/181d76cd-f381-4afa-b0f2-ed26020d130a" />
+
+<img width="507" height="15" alt="GIF image" src="https://github.com/user-attachments/assets/0ec1ed94-dfe7-456d-8974-0d5ab2e266db" />
+
