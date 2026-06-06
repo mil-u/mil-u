@@ -1,7 +1,10 @@
 ## ! call me mil 
 <img width="500" height="270" alt="GIF image" src="https://github.com/user-attachments/assets/06de75c8-bea7-480d-be35-31e3df7c9898" />
 lalalala
-~~
+
+
+
+
 get off safe server if youre a proshipper especially with "minors dni" (you know damn well) youre all weirdos 4 letting kids see your bs keep it private or take it to 18+!!!!
 ~~
 
