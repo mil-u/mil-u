@@ -1,10 +1,10 @@
 ## ! call me mil
-<img width="500" height="270" alt="GIF image" src="https://github.com/user-attachments/assets/06de75c8-bea7-480d-be35-31e3df7c9898" />
 · · ─ ·✶· ─ · ·
 
 
+<img width="800" height="30" alt="GIF image" src="https://github.com/user-attachments/assets/88cf2f61-ff8b-4dd8-a724-71889e251d43" />
 
-YES ik my github looks like shit NO i wont change it im too lazy to make it pretty
+
 
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
 
