@@ -6,10 +6,8 @@ lalalala
 
 YES ik my github looks like shit NO i wont change it im too lazy to make it pretty
 
-!!!!get off safe server if youre a proshipper especially with "minors dni" (you know damn well) youre all weirdos 4 letting kids see your bs keep it private or take it to 18+!!!!
 
-
-ANYWAY here's some media i enjoy:
+here's some media i enjoy:
 
 games: little nightmares, what remains of edith finch, yakuza, detroit become human, botw (still playing), the last of us, brawl stars (sorry), phigros, sky: cotl, left 4 dead & more
 
@@ -17,3 +15,6 @@ anime/manga: one piece, hxh, dbz/dbs, naruto, kaiba2008, dmcb, tshd, mob pyscho,
 
 tv shows/movies: breaking bad, better call saul, 2001: a space odyssey, project hail mary, the game (1997), get out, society of the snow, nope, the cabinet of dr. caligari & more
 
+----------
+
+<< get off safe server if youre a proshipper especially with "minors dni" (you know damn well) youre all weirdos 4 letting kids see your bs keep it private or take it to 18+ >>
