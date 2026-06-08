@@ -22,7 +22,7 @@ tv shows/movies: breaking bad, better call saul, 2001: a space odyssey, project 
 
 <<  if you are a proshipper with ‘minors dni’ then pls get off safe server! 18+ servers exist on pt for this exact reason! >>
 
-& dont interact with me at all if you call yourself a proshipper
+& dont int with me at all if you are one
 
 other than that my dni list is:
 
