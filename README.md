@@ -27,4 +27,4 @@ other than that my dni list is:
 
 ╰┈➤ https://dni-criteria.carrd.co
 
-<img width="507" height="15" alt="GIF image" src="https://github.com/user-attachments/assets/0ec1ed94-dfe7-456d-8974-0d5ab2e266db" /
+<img width="507" height="15" alt="GIF image" src="https://github.com/user-attachments/assets/0ec1ed94-dfe7-456d-8974-0d5ab2e266db" />
