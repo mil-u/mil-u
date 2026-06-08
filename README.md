@@ -24,6 +24,7 @@ tv shows/movies: breaking bad, better call saul, 2001: a space odyssey, project 
 
 & dont interact with me at all if you call yourself a proshipper
 other than that my dni list is:
-https://dni-criteria.carrd.co
+
+╰┈➤ https://dni-criteria.carrd.co
 
 <img width="507" height="15" alt="GIF image" src="https://github.com/user-attachments/assets/0ec1ed94-dfe7-456d-8974-0d5ab2e266db" /
